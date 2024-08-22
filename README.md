@@ -6,7 +6,7 @@
 - 👀 Companies I like: The Browser Company/Arc, Bilt, Pave, Notion, Wealthfront
 - 🌱 I’m passionate about ... sustainability, bouldering, workshopping (indigo/botancial dye, sashiko, woodwork, pottery), and sasquatch lore
 - 🔗 How to reach me ...
-    - <a href="https://www.linkedin.com/in/jenny-fang415/" rel="follow"> https://www.linkedin.com/in/jenny-fang415/</a>
+    - <a href="https://www.linkedin.com/in/jenny-fang415/" rel="follow"> </a>
 https://www.linkedin.com/in/jenny-fang415/
 - ⚡ Fun facts: ...
     - Represented my 20lb dachshund pomeranian dog in court
